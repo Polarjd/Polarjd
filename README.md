@@ -8,3 +8,5 @@
 [Youtube](https://www.youtube.com/channel/UCJalzG6aVnf1h5O5j3sgInw)
 
 [Twitter](https://twitter.com/Polartwter)
+
+Discord: NotPolar#3978
