@@ -1,1 +1,1 @@
-## Profile migrated to @lovhb
+## Profile migrated to [@lovhb](https://github.com/lovhb)
